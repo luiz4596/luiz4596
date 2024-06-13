@@ -1,3 +1,5 @@
+## Boas vindas aõ meu perfil 💙
+
 ## meu nome é luiz Guilherme 
 
 ## • estou estudando na alura 
